@@ -1,1 +1,0 @@
-Rubl rubl rubl
